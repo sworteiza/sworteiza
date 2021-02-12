@@ -4,7 +4,7 @@
 I am a novice programmer-dreamer who aspires to become what I always wanted to be.:sparkles:  
 
 -----------------------------------
-:cherry_blossom: To some of that don't only want to see applications and find out **_something more_**, I really like to  **_draw_** to, so
+:cherry_blossom: To some of you that don't only want to see applications and find out **_something more_**, I really like to  **_draw_** to, so
 you can visit [my art page](https://www.instagram.com/swortoi/) on **_Instagram_** :cherry_blossom:
 
 ---------------------------------------
